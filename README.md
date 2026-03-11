@@ -2,7 +2,6 @@
 
 https://github.com/user-attachments/assets/57431669-c218-4a62-8247-eb63ad752d03
 
-tive
 
 # Poze sugestive
 
